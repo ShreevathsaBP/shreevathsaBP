@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently a student@JNNCE<br>
+Building for the Web🌐 | writing code one line at a time.<br>
 
 
 ## 🌐 Socials:
